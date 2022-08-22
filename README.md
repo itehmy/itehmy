@@ -2,7 +2,7 @@
 - 👀 I’m Team Lead
 - 🌱 I’m currently Managing Projects via github
 - 💞️ I’m looking to collaborate on with talented people.
-- 📫 How to reach me : Just PM me :)
+- 📫 How to reach me : Send Message here : https://www.linkedin.com/in/tehm/  OR Just PM me :)
 
 <!---
 itehmy/itehmy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
